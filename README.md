@@ -1,4 +1,4 @@
-### Hi! I'm Angga 🌝.
+### Hi! I'm Angga 🌝
 
 Saya adalah seorang web developer .\
 Saya sudah pernah menyelesaikan kelas dan mendapatkan sertifikat di [Dicoding](https://www.dicoding.com/users/arifdew).\
